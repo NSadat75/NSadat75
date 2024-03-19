@@ -20,7 +20,6 @@ Passionate and dedicated, Najmus Sadat Khan is currently pursuing his Master's d
 - **B.Sc. in Civil & Water Resources Engineering**
   - Military Institute of Science & Technology (MIST)
   - Duration: 2018-2022
-  - Result: CGPA 3.13
 ---
 
 ## Publications
